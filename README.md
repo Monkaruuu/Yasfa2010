@@ -1,2 +1,3 @@
 # Yasfa2010
-Saya pemula pak
+Saya ingin menjadi KOSNI
+
